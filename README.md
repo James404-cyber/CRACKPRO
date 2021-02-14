@@ -5,10 +5,10 @@
 
 <h1 align="center"> |MR.JAMES|</h1>
 
-<h2 align="center"> PAKISTAN WITHOUT LOGIN ALL SIM CRACKING TOOL </h2>
+<h2 align="center"> FACEBOOK FRIENDS AND PUBLIC ID CRACK </h2>
 
 <p align="center">
-      PAKISTAN WITHOUT LOGIN ALL DIGIT CRACK
+      LOGIN METHODE USEING FB TOKEN
 </p>
 
 
